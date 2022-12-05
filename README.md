@@ -1,2 +1,2 @@
-# ikervc.com
+# WikiStrangerTings.com
 WikiStrangerTings
